@@ -15,6 +15,8 @@ english + spanish + learning russian
 
 honduran-american
 
+my top 3 biggest interests currently are Rain World (been a fan for almost 5 years), Object shows in general (been consuming them since i was 4 /srs.) and Murder drones (more recent interest but its taken over my life ngl) 
+
 more info about me on my other links! (pronouns.page contains more detailed identities + names + preferred terms, rentries contain info such as interests, more detailed dni, and more)
 
 ## BEFORE YOU INTERACT! 
