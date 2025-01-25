@@ -19,7 +19,7 @@ more info about me on my other links! (pronouns.page contains more detailed iden
 
 ## BEFORE YOU INTERACT! 
 
-how i act changes ALOT on my mood, and i have constant mood swings!
+how i act changes ALOT on my mood, and i have constant mood swings! because of this, its really likely i dont feel like interacting with people im not extremely close to, so pls dont take it to heart if i ignore you or walk away!
 
 if im behind a tree, it is superr likely i wanna be left alone, unless im actively whispering you or youre already my friend, please leave me alone
 
