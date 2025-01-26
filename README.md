@@ -19,7 +19,7 @@ _''-but satan waits upstairs, watching over his daughter, she writes emo songs, 
 ## BASIC INFO
 i mainly go by lyra, but since im a name collector i go by a TON of different names! i dont expect you to call me all of them obvi, but the main one i go by is lyra!! less common ones are cactus, keira, or evergreen ^^
 
-he/him lesbian! if u think thats unvaild pls do more research LOL! pronouns **dont** equal gender!
+he/him lesbian! if u think thats unvaild pls do more research LMFAOO, pronouns **dont** equal gender!
 
 nonbinary umbrella! i use nonbinary as an umbrella term for me, since im not sure what exactly i am, i just know im under that umbrella :p 
 
