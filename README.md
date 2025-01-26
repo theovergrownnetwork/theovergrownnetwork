@@ -79,7 +79,7 @@ link of all my friends githubs in my close friend group (at least the ones who p
 
 ![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
 
-_''you'll never be okay (hey.),i f you don't come to your senses, but I feel so defenseless, so alone. i thought he was right, when he said that he loved me! he's still thinking of me, from up there.''_
+_''you'll never be okay (hey.), i f you don't come to your senses, but I feel so defenseless, so alone. i thought he was right, when he said that he loved me! he's still thinking of me, from up there.''_
 
 
 ## LINKS!
