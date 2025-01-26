@@ -63,6 +63,10 @@ people who treat me as if im the character (unless my name has something otherwi
 
 people who dont respect td/tt, dni, or anything similar
 
+people who make nsfw avatars
+
+normies... (/nsrs!)
+
 ![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
 
 _''he said you'll never be okay (okay.), if you don't come to your senses, with you everything's the end of the world. melancholia can spread like a viruso i'm sure you got it from that stupid girl.''_
