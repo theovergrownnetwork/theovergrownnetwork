@@ -10,7 +10,10 @@ feel free to int if you arent weird lol, (guys if ur from the md area and ur one
 
 ![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
 
-_''but satan waits upstairs, watching over his daughter, she writes emo songs, she's so depressed! her lyrics are naive but she still sings her heart out, thе only way she knows how to confess.''_
+_''here it is again, the son of a soldier! remington shotgun, rolled up sleeves. to keep satan out of the walls, of the suburbs, his last bastion of modernity-''_
+
+
+_''-but satan waits upstairs, watching over his daughter, she writes emo songs, she's so depressed! her lyrics are naive but she still sings her heart out, thе only way she knows how to confess.''_
 
 
 ## BASIC INFO
