@@ -71,6 +71,17 @@ normies... (/nsrs!)
 
 _''he said you'll never be okay (okay.), if you don't come to your senses, with you everything's the end of the world. melancholia can spread like a viruso i'm sure you got it from that stupid girl.''_
 
+## FRIEND GROUP (TSF!!)
+
+link of all my friends githubs in my close friend group (at least the ones who play ponytown :p)
+
+[THE SILLIES!!](https://github.com/Garden-of-Meteors)
+
+![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
+
+_''you'll never be okay (hey.),i f you don't come to your senses, but I feel so defenseless, so alone. i thought he was right, when he said that he loved me! he's still thinking of me, from up there.''_
+
+
 ## LINKS!
 // note: rentries + carrd is planned on being remade soon! i still need to figure out metadata but until then u gotta deal w ugly rentries and a messy carrd sorryy!!
 
@@ -78,4 +89,4 @@ _''he said you'll never be okay (okay.), if you don't come to your senses, with 
 
 ![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
 
-_''you'll never be okay (hey.),i f you don't come to your senses, but I feel so defenseless, so alone. i thought he was right, when he said that he loved me! he's still thinking of me, from up there.''_
+_''and as they stop to look at her they won't look further, like it's not a murder, it's an inevitable tragedy! the bloody hands of all the heartless fuckers, who emotionally fucked her to, monetize her suffering. flipping through a spiral notebook for some sad hopeless words, to turn into a liturgy. so she'll never leave her bedroom, in this bedroom community!!!!!''_
