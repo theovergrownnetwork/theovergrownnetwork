@@ -71,7 +71,7 @@ normies... (/nsrs!)
 
 _''he said you'll never be okay (okay.), if you don't come to your senses, with you everything's the end of the world. melancholia can spread like a viruso i'm sure you got it from that stupid girl.''_
 
-## FRIEND GROUP (TSF!!)
+## FRIEND GROUP (THE SILLY FREAKS!!)
 
 link of all my friends githubs in my close friend group (at least the ones who play ponytown :p)
 
