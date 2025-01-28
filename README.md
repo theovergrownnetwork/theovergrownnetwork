@@ -39,7 +39,7 @@ _''and as she gеts up to shut the bedroom door behind her, he stands right besi
 
 how i act changes ALOT on my mood, and i have constant mood swings! because of this, its really likely i dont feel like interacting with people im not extremely close to, so pls dont take it to heart if i ignore you or walk away!
 
-if im behind a tree, it is superr likely i wanna be left alone, unless im actively whispering you or youre already my friend, please leave me alone
+if im behind a tree, it is superr likely i wanna be left alone, unless im actively whispering you or youre already my friend, please leave me alone! (if you are already on my friends list and want to interact with me when im behind a tree, just whisper first please! its like a 50/50 whether im good or not)
 
 i have a slight td/tt! if you are not my friend please dont cuddle/boop/etc me on ponytown without asking ^^
 
