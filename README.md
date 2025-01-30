@@ -75,7 +75,7 @@ _''he said you'll never be okay (okay.), if you don't come to your senses, with 
 
 link of all my friends githubs in my close friend group (at least the ones who play ponytown :p)
 
-[THE SILLIES!!](https://github.com/Garden-of-Meteors) + [MY TWIN FR ILY HO!!](https://github.com/c0lumb1na)
+[THE SILLIES!!](https://github.com/Garden-of-Meteors) + [MY TWIN FR ILY HO!!](https://github.com/birdsofafeatherr)
 
 ![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
 
