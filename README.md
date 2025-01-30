@@ -61,7 +61,7 @@ _''and as she gеts up to shut the bedroom door behind her, he stands right besi
 
 people who dont respect dni, td/tt, or anything along those lines
 
-people who copy skins
+people who copy skins (applies to tut skins, ur not rlly learning anything if u just copy and paste imo + seeing like 20 million of the same cosplay makes me evil..)
 
 roleplayers, specifically roleplayers who try to roleplay with random people who dont want to
 
