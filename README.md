@@ -51,6 +51,8 @@ mentally ill (very obvious)
 
 also im just kinda. stupid in general.
 
+DNIUSF = do not interact unless silly freaks, aka my friend group name! if this is in my name and youre NOT in the friend group but still try to interact with me, ur getting ignored i fear! its there for a reason
+
 **i quite literally dont care if you think im sensitive, these are my boundaries that i put in place to help myself feel comfortable! if you think its stupid just like.. dont interact w/ me idfk?**
 
 // note: **IF ANYTHING I DO MAKES YOU UNCOMFORTABLE, PLEASE TELL ME IMMEDIATELY! MY INTENT IS NEVER TO MAKE PEOPLE UNCOMFORTABLE AND SOMETIMES I FORGET OR CANT READ TONE!**
