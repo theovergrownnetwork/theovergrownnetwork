@@ -17,6 +17,8 @@ honduran-american, i speak english and spanish and am currently trying to learn 
 
 top interests currently: rain world, object shows, cookie run kingdom, forsaken, murder drones
 
+// note: this github is updated FREQUENTLY, and this information is very likely up to date!)
+
 *more info about me personally in my rentries!!*
 
 ![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
@@ -27,7 +29,7 @@ _''-but satan waits upstairs, watching over his daughter, she writes emo songs, 
 
 i am alot of the time in some sort of bad mood, and dont often want to interact with people im unfamiliar with! this is nothing personal, i just am *very* often paranoid and dont trust people due to past experiences
 
-how i act depends alot on my mood, and i can sometimes come off as rude or cold
+how i act depends alot on my mood, and i can sometimes come off as rude or cold because of this (also i have mood swings like. constantly. fear!)
 
 i have had issues with people not being able to tell my tone, if you cannot tell my tone and i havent used a tone tag just ask for one!
 
@@ -39,17 +41,19 @@ i make kms/kys jokes, and say slurs i can reclaim
 
 i have episodic delusiouns of a few characters im very strongly attachted to
 
-i am anxious when talking to new people, so if u want to interact just like.. whisper me (public chat my biggest opp)
+i am anxious when talking to new people, so if u want to interact just like.. whisper me (public chat my biggest opp) (soo targetted at the cool mfs in md... you guys wanna be my friend soooo bad...)
 
-i have genuine memory issues, please dont give me a hard time about it
+i have **genuine** memory issues, please dont give me a hard time about it
 
 i tend to mix up words alot or spell things wrong
 
 mentally ill (very obvious)
 
-i quite literally dont care if you think im sensitive, these are my boundaries that i put in place to help myself feel comfortable! if you think its stupid just like.. dont interact w/ me idfk?
+also im just kinda. stupid in general.
 
-// note: IF ANYTHING I DO MAKES YOU UNCOMFORTABLE, PLEASE TELL ME IMMEDIATELY! MY INTENT IS NEVER TO MAKE PEOPLE UNCOMFORTABLE AND SOMETIMES I FORGET OR CANT READ TONE!
+**i quite literally dont care if you think im sensitive, these are my boundaries that i put in place to help myself feel comfortable! if you think its stupid just like.. dont interact w/ me idfk?**
+
+// note: **IF ANYTHING I DO MAKES YOU UNCOMFORTABLE, PLEASE TELL ME IMMEDIATELY! MY INTENT IS NEVER TO MAKE PEOPLE UNCOMFORTABLE AND SOMETIMES I FORGET OR CANT READ TONE!**
 
 ![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
 
@@ -68,6 +72,8 @@ roleplayers, specifically roleplayers who try to roleplay with random people who
 people who treat me as the character im cosplaying (unless stated otherwise, it is a cosplay! do not treat me like the character, it makes me extremely uncomfortable.)
 
 people who make nsfw avatars (ur weird)
+
+people who are rude to anyone in my friend group! kys i do not like you!
 
 ![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
 
