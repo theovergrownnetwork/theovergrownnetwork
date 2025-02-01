@@ -33,7 +33,7 @@ how i act depends alot on my mood, and i can sometimes come off as rude or cold 
 
 i have had issues with people not being able to tell my tone, if you cannot tell my tone and i havent used a tone tag just ask for one!
 
-**alot** of "small" things trigger me (it wont be listed here, but **some** are in my rentries.), and can cause me to go into episodes. please be aware of this before interacting with me
+**alot** of "small" things trigger me (it wont all be listed on my github, but **some** are in my rentries.), and can cause me to go into episodes. please be aware of this before interacting with me
 
 i have slight td on ponytown, please ask before doing anything (doesnt apply if i am familiar with you and/or youre my friend!)
 
@@ -61,6 +61,30 @@ DNIUSF = do not interact unless silly freaks, aka my friend group name! if this 
 
 _''and as she gеts up to shut the bedroom door behind her, he stands right beside her, she's trying to get her head on straight! with box dye hair to match her black thigh highs, and scratched nail polish, she performs femininity-''_
 
+# CAUTION *WHEN* INTERACTING !!
+
+if you already are my friend on ponytown, this means im comfortable enough interacting with you, but you dont know me that well (assuming) so heres just some shit to like. not do when were interacting! this is mainly just jokes im uncomfortable with, or just some general triggers/media i dont like, since i didnt just want to put it in dni
+
+extremely detailed nsfw jokes, really weird nsfw jokes, or making nsfw jokes directed towards me (unless ive said im fine w/ it) or my friend group (literally kys.) //note: (im fine w/ nsfw jokes, just as long as it isnt detailed/weird)
+
+dont use racial slurs, even if u can reclaim them! i have an extremely bad history with racial slurs, specifcally any against hispanics, and id just prefer if you dont! if thats how u joke, its fine (as long as u can reclaim!), just maybe not around me!
+
+no graphic details about s/h, or jokes about it! (im fine w/ a mention, just no details)
+
+please dont mention tdi around me. i will genuinely start to panic /srs. even if i have my bridgette skin on, its because im extremely attatched to her and am delusional about her! im fine w/ like really short convos abt it but like no actual discussions, especially about DJ or Carrie. //note: if im already actively talking about tdi, then its fine! if i stop talking abt it tho pls dont continue.)
+
+if u have a tails cosplay literally do not equip it around me illl also start to panic.. its only that specific character im fine w/ any other sonic character (if u do i fear ur either getting hidden, unadded, or ignored (if i already asked u to not)) 
+
+i do not like mitski, laufey, kevin macleod, or alex g.. its literally NOTHING against them personally, theyre just tied to the memories of people i hate. i dont rlly care if you like them/listen to their music but try to avoid mentioning
+
+if youre in tdds, quite literally dont mention anything about them at all to me. no exceptions to this i fear, if you do after ive asked youre getting hidden/blocked sorry (if u dont even know what tdds are, this isnt relevant to you LOL)
+
+// note: i do not care if u think these are "weird" or that im overdramatic, most of this shit is because of shit ive gone through that i dont want to me reminded of, thanks! if u dont respect these just dont interact with me!!
+
+![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
+
+_''he said you'll never be okay (okay.), if you don't come to your senses, with you everything's the end of the world. melancholia can spread like a viruso i'm sure you got it from that stupid girl.''_
+
 # SIMPLE DNI !!
 
 // note: this dni is for ponytown specifically, i have a much more detailed dni rentry (along with a blacklist rentry)
@@ -74,6 +98,8 @@ roleplayers, specifically roleplayers who try to roleplay with random people who
 people who treat me as the character im cosplaying (unless stated otherwise, it is a cosplay! do not treat me like the character, it makes me extremely uncomfortable.)
 
 people who make nsfw avatars (ur weird)
+
+changleing skins,, idk yall just dont respect dni and r so dramamtic when i tell yall to fuck off?? go interact with people who want to.
 
 people who are rude to anyone in my friend group! kys i do not like you!
 
@@ -89,8 +115,6 @@ i am commonly sitting with my friends on ponytown! this is either links to their
 [THE SILLIES!!](https://github.com/Garden-of-Meteors) + [FINN AKA MY TWIN!!](https://github.com/birdsofafeatherr) + NOEL!! (doesnt have a github!! lame!!)
 
 ![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
-
-_''he said you'll never be okay (okay.), if you don't come to your senses, with you everything's the end of the world. melancholia can spread like a viruso i'm sure you got it from that stupid girl.''_
 
 _''you'll never be okay (hey.), i f you don't come to your senses, but I feel so defenseless, so alone. i thought he was right, when he said that he loved me! he's still thinking of me, from up there.''_
 
