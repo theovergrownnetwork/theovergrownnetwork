@@ -17,6 +17,8 @@ honduran-american, i speak english and spanish and am currently trying to learn 
 
 top interests currently: rain world, object shows, cookie run kingdom, forsaken, murder drones
 
+putting this here too incase people dont scroll down, *if im actively talking in public chat, this means im feeling fine w/ interacting with people! (unless i only went on it to tell someone to go away) usually im just in party chat or sitting alone. if im sitting alone but you want to interact, WHISPER ME! **its not a guarentee ill be in the mood, but if you try to w/o whispering youll just be ignored!***
+
 // note: this github is updated FREQUENTLY, and this information is very likely up to date!)
 
 *more info about me personally in my rentries!!*
