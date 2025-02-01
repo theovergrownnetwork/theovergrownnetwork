@@ -99,7 +99,7 @@ people who treat me as the character im cosplaying (unless stated otherwise, it 
 
 people who make nsfw avatars (ur weird)
 
-changleing skins,, idk yall just dont respect dni and r so dramamtic when i tell yall to fuck off?? go interact with people who want to.
+changeling skins,, idk yall just dont respect dni and r so dramamtic when i tell yall to fuck off?? go interact with people who want to.
 
 people who are rude to anyone in my friend group! kys i do not like you!
 
