@@ -11,7 +11,7 @@ _''here it is again, the son of a soldier! remington shotgun, rolled up sleeves.
 
 hello!! i mainly go by lyra but go by a ton of other names! im often on ponytown due to it being my comfort game, so this github is gonna be mainly ponytown information
 
-he/him transneutral lesbian, along with multiple xenos, if you think that is invalid, please do research and educate yourself!
+he/him transneutral nonbinary gendervoid femme-presenting lesbian, along with multiple xenos, if you think that is invalid, please do research and educate yourself! (some links that i finda good resource: https://enbysbians.carrd.co/ + https://lesboyguide.carrd.co/ , but please do research if you are still confused!)
 
 honduran-american, i speak english and spanish and am currently trying to learn russian!
 
