@@ -126,7 +126,7 @@ _''you'll never be okay (hey.), i f you don't come to your senses, but I feel so
 
 links to anything that has info about me (id recommend checking my pronouns page)
 
-[carrd](https://lyraevergreen.carrd.co/#) / [pronouns.page](https://en.pronouns.page/@lyraevergreen) / [media i like + media i dont want to int with](https://rentry.co/lyraevergreen) / [names list](https://rentry.co/lyranames) / [dni + int](https://rentry.co/lyracriteria) / [blacklist](https://rentry.co/lyrablacklist) / [where i keep all my links ngl](https://pronouns.cc/@lyraevergreen)
+[carrd](https://lyraevergreen.carrd.co/#) / [pronouns.page](https://en.pronouns.page/@lyraevergreen) / [media i like + media i dont want to int with](https://rentry.co/lyraevergreen) / [names list](https://rentry.co/lyranames) / [dni + int](https://rentry.co/lyracriteria) / [blacklist](https://rentry.co/lyrablacklist) / [list of kins, irls, personas, etc! (wip)](https://pronouns.cc/@lyraevergreen)
 
 ![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
 
