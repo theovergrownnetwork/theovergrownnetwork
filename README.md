@@ -13,6 +13,7 @@ hello!! i mainly go by lyra but go by a ton of other names! im often on ponytown
 
 he/him transneutral nonbinary gendervoid femme-presenting lesbian (masc + gn terms preferred! see pronouns.page for all preferred tems), along with multiple xenos, if you think that is invalid, please do research and educate yourself! (some links that i finda good resource: https://enbysbians.carrd.co/ + https://lesboyguide.carrd.co/ , but please do research if you are still confused!)
 
+//- NOTE: PLEASE CHECK MY PRONOUNS. CC! IT CONTAINS A TON OF USEFUL INFORMATION REGARDING MY IDENTIIES WHEN IT COMES TO MY EPISODIC DELUSIONS! https://pronouns.cc/@lyraevergreen
 honduran-american, i speak english and spanish and am currently trying to learn russian!
 
 top interests currently: rain world, object shows, cookie run kingdom, forsaken, murder drones
