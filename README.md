@@ -111,15 +111,6 @@ people who are rude to anyone in my friend group! kys i do not like you!
 
 _''-she laughs so hard I watch her lose her balance, fall over backwards to the arms of Mephistopheles! but she'll never leave her bedroom, in this bedroom community!''_
 
-
-# MY FRIEND GROUP !!
-
-i am commonly sitting with my friends on ponytown! this is either links to their githubs (if they have one) or just their names! (please note this is NOT my full friend group, just the ones who play ponytown!)
-
-[THE SILLIES!!](https://github.com/Garden-of-Meteors) + [FINN AKA MY TWIN!!](https://github.com/mascaraluctatori) + NOEL!! (doesnt have a github!! lame!!)
-
-![image](https://github.com/user-attachments/assets/d2093a95-adb2-403c-890e-ce89dcd1e49d)
-
 _''you'll never be okay (hey.), i f you don't come to your senses, but I feel so defenseless, so alone. i thought he was right, when he said that he loved me! he's still thinking of me, from up there.''_
 
 
