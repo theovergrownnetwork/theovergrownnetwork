@@ -9,7 +9,7 @@ _''here it is again, the son of a soldier! remington shotgun, rolled up sleeves.
 
 # INTRO !!
 
-hello!! i mainly go by lyra but go by a ton of other names! im often on ponytown due to it being my comfort game, so this github is gonna be mainly ponytown information
+hello!! i mainly go by evergreen but go by a ton of other names! im often on ponytown due to it being my comfort game, so this github is gonna be mainly ponytown information
 
 he/him transneutral nonbinary gendervoid femme-presenting lesbian (masc + gn terms preferred! see pronouns.page for all preferred tems), along with multiple xenos, if you think that is invalid, please do research and educate yourself! (some links that i finda good resource: https://enbysbians.carrd.co/ + https://lesboyguide.carrd.co/ , but please do research if you are still confused!)
 
@@ -54,8 +54,6 @@ i tend to mix up words alot or spell things wrong
 mentally ill (very obvious)
 
 also im just kinda. stupid in general.
-
-DNIUSF = do not interact unless silly freaks, aka my friend group name! if this is in my name and youre NOT in the friend group but still try to interact with me, ur getting ignored i fear! its there for a reason
 
 **i quite literally dont care if you think im sensitive, these are my boundaries that i put in place to help myself feel comfortable! if you think its stupid just like.. dont interact w/ me idfk?**
 
