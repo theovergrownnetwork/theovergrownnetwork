@@ -11,7 +11,7 @@ hello! we are a system!! we dont go by one specific name, so pls just ask who is
 
 we collectively identify as a lesboy under the nonbinary umbrella! if this bothers u, pls dni! lesboys r valid!! simple explainaton to enby lesbians -> https://enbysbians.carrd.co/ + simple explanation to lesboys -> https://lesboyguide.carrd.co/ but feel free to ask us about our identities if u are curious! our pronouns.cc is linked if ur curious to our indiviual identities
 
-**^ felt the need to add this while this discourse is trending, WE DO NOT CARE ABOUT "invalidating" LABELS! we love the following: lesboys, turigirls, mspec lesbians and gays, gaybians, and MORE!! WE DO NOT SUPPORT ANYTHING INVOLVING P3DO, INC3ST OR RACE FETISHIZING! we do NOT fuck with that at all, and if u identify with any label involving those three we will block u asap.  (we of course dont fw other things, but those r the 3 i got off the top of my head ^^ - keira)**
+**^ felt the need to add this while this discourse is trending, WE DO NOT CARE ABOUT "invalidating" LABELS! we love the following: lesboys, turigirls, mspec lesbians and gays, gaybians, and MORE!! //WE DO NOT SUPPORT ANYTHING INVOLVING P3DO, INC3ST OR RACE FETISHIZING!// we do NOT fuck with that at all, and if u identify with any label involving those three we will block u asap.  (we of course dont fw other things, but those r the 3 i got off the top of my head ^^ - keira)**
 
 honduran-american, we speak english and spanish, though we struggle writing spanish specifically 
 
