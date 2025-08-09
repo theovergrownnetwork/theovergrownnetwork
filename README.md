@@ -1,4 +1,4 @@
-![image](https://images-ext-1.discordapp.net/external/6T_d4Hr_acCStVOeLKHm_kt4IpQGTXyGSs7DPPJZVr8/https/files.catbox.moe/zfki96.png?format=webp&quality=lossless&width=1185&height=736)
+![image](https://images-ext-1.discordapp.net/external/0pjqlp_fW72EVmznOt_bbPk2AftU1EuS2gM09AjOJFw/https/files.catbox.moe/fli47z.png?format=webp&quality=lossless&width=1185&height=736)
    <p align="center"> GRAPHIC MADE BY US, credit for the art used in it is at the bottom!   <p align="center">
 
 ![image](https://64.media.tumblr.com/8c36195a4ad1b0a3bc188a9e68c6c575/6c940d95a3f14f7d-c1/s2048x3072/264f838f9e3060fc3886f386577419f71cb9d3a4.pnj)
