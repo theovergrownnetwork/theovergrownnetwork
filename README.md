@@ -8,7 +8,7 @@
 
 general info to know;
 
-honduran-american ~//~  *bodily a minor, alot of headmates are minors, please do not make sexual jokes around us unless its extremely tame* ~//~ **we collectively identify as a lesboy under the nonbinary umbrella** ~//~ we do not have a collective name. if you are unaware who is fronting, do not refer to us with no name at all, DO NOT CALL US "overgrown network" OR ANYTHING SIMILAR! either use the fronters name or none at all. ~//~ *major memory + mental health issues* ~//~ **chronically online** ~//~ our public chat on ponytown is (almost) ALWAYS off, whisper us if you want us to see any message (unless we have dni in our name)
+honduran-american ~//~  *bodily a minor, alot of headmates are minors, please do not make sexual jokes around us unless its extremely tame* ~//~ **we collectively identify as a lesboy under the nonbinary umbrella** ~//~ we do not have a collective name. if you are unaware who is fronting, do not refer to us with a name at all, DO NOT CALL US "overgrown network" OR ANYTHING SIMILAR! either use the fronters name or none at all. ~//~ *major memory + mental health issues* ~//~ **chronically online** ~//~ our public chat on ponytown is (almost) ALWAYS off, whisper us if you want us to see any message (unless we have dni in our name)
 
 
 **important info;**
