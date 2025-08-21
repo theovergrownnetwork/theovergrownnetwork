@@ -13,11 +13,15 @@ honduran-american ~//~  *bodily a minor, alot of headmates are minors, please do
 
 **important info;**
 
-we, as a collective, do not trust others. this is because of past and mental issues, and it has caused our brain to think "people = bad", because of this, we are on a strict _dniuid_ (do not interact unless we do), **this includes _any_ form of direct interaction**, such as whispers (yes, even if youre just crowning us), sitting near us, or anything similar. 
+we, as a collective, do not trust others. this is because of past and mental issues, and it has caused our brain to think "people = bad", because of this, we are almost always on a _dniuid_ (do not interact unless we do), **this includes _any_ form of direct interaction**, such as whispers (yes, even if youre just crowning us), sitting near us, or anything similar. 
 
 if you want to interact with us, whispering and asking is your best bet! it's not a guarrentee we'll be in the mood to interact, but if you randomly come up to us, it is a hard NO.
 
 note; please read our strawpage (which includes a dni) before interacting. im serious, we are very wary about who we talk to, and if you are on our dni (or vise versa), we will *not* interact with you, no exceptions! ~(i also dont wanna hear you say "oh idc if you're on my dni", because **WE** care also. why have a dni if ur not gonna follow it?)~ :sob:
+
+**// note; if you are already on our friendlist, dniuid does not apply to you, but dni does! just interact with care if we arent familiar, we will tell you if we dont want to talk at that moment /gen!!**
+
+**// if you are a _close_ friend, dni does not apply to you unless stated otherwise (such as "dni /srs" in our name)**
 
 ![image](https://64.media.tumblr.com/8c36195a4ad1b0a3bc188a9e68c6c575/6c940d95a3f14f7d-c1/s2048x3072/264f838f9e3060fc3886f386577419f71cb9d3a4.pnj)
 
