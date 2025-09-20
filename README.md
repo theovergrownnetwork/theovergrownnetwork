@@ -17,8 +17,9 @@ honduran-american ~//~  *bodily a minor, alot of headmates are minors, please do
 we, as a collective, do not trust others. this is because of past and mental issues, and it has caused our brain to think "people = bad", because of this, we are almost always on a _dniuid_ (do not interact unless we do), **this includes _any_ form of direct interaction**, such as whispers (yes, even if youre just crowning us), sitting near us, or anything similar. 
 
 if you want to interact with us, whispering and asking is your best bet! it's not a guarrentee we'll be in the mood to interact, but if you randomly come up to us, it is a hard NO.
+**// note; please dont try to push friendships onto us.. thats like, a guarentee to make us not like you.. we like being alone, and the last thing we need is someone like that forcing a friendship..**
 
-note; please read our strawpage (which includes a dni) before interacting. im serious, we are very wary about who we talk to, and if you are on our dni (or vise versa), we will *not* interact with you, no exceptions! ~(i also dont wanna hear you say "oh idc if you're on my dni", because **WE** care also. why have a dni if ur not gonna follow it?)~ :sob:
+please read our strawpage (which includes a dni) before interacting. im serious, we are very wary about who we talk to, and if you are on our dni (or vise versa), we will *not* interact with you, no exceptions! ~(i also dont wanna hear you say "oh idc if you're on my dni", because **WE** care also. why have a dni if ur not gonna follow it?)~ :sob:
 
 **// note; if you are already on our friendlist, dniuid does not apply to you, but dni does! just interact with care if we arent familiar, we will tell you if we dont want to talk at that moment /gen!!**
 
