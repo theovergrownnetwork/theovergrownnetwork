@@ -1,4 +1,4 @@
-![image](https://images-ext-1.discordapp.net/external/0pjqlp_fW72EVmznOt_bbPk2AftU1EuS2gM09AjOJFw/https/files.catbox.moe/fli47z.png?format=webp&quality=lossless&width=1185&height=736)
+![image](https://media.discordapp.net/attachments/1106301680254980228/1419451565164593314/Untitled386_20250921183131.png?ex=68d1cec9&is=68d07d49&hm=c0fade1903e3f31d58bafa2c7abef1cebed49555f82faf4feff0ad33d100bde6&=&format=webp&quality=lossless&width=1184&height=736)
    <p align="center"> GRAPHIC MADE BY US, credit for the art used in it is at the bottom!   <p align="center">
 
 ![image](https://64.media.tumblr.com/8c36195a4ad1b0a3bc188a9e68c6c575/6c940d95a3f14f7d-c1/s2048x3072/264f838f9e3060fc3886f386577419f71cb9d3a4.pnj)
@@ -29,6 +29,6 @@ please read our strawpage (which includes a dni) before interacting. im serious,
 
 ![image](https://64.media.tumblr.com/8c36195a4ad1b0a3bc188a9e68c6c575/6c940d95a3f14f7d-c1/s2048x3072/264f838f9e3060fc3886f386577419f71cb9d3a4.pnj)
 
-art creds; [image inside the frame](https://www.tumblr.com/tttantan/776640997249712129/i-love-moon) ~//~ [image outside of the frame](https://www.tumblr.com/nervolt/773665724658040832) ~//~ [background image, but we genuinely cant find the og artist, we only have the pinterest pin of it..](https://pin.it/uOf8YPDno)
+art creds; [image inside the frame](https://www.tumblr.com/tttantan/776640997249712129/i-love-moon) ~//~ [image outside of the frame](https://www.tumblr.com/nervolt/773665724658040832) ~//~ [background image, its not art, its an actual screenshot from the game!!](https://rainworld.miraheze.org/wiki/The_Exterior#The_Wall)
 
 <p align="center"> all images have been edited/cropped/recolored to fit our graphic! we cant provide where we got specific aspects of the graphic, as we just collected resources/pngs in our photo gallery overtime, sorry ;( <p align="center">
