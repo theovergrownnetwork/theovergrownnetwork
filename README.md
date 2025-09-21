@@ -10,6 +10,8 @@ general info to know;
 
 honduran-american ~//~  *bodily a minor, alot of headmates are minors, please do not make sexual jokes around us unless its extremely tame* ~//~ **we collectively identify as a lesboy under the nonbinary umbrella** ~//~ we do not have a collective name. if you are unaware who is fronting, do not refer to us with a name at all, DO NOT CALL US "overgrown network" OR ANYTHING SIMILAR! either use the fronters name or none at all. ~//~ *major memory + mental health issues* ~//~ **chronically online** ~//~ our public chat on ponytown is (almost) ALWAYS off, whisper us if you want us to see any message (unless we have dni in our name)
 
+quick disclaimer since i feel like we just need to be blunt atp for people to understand: we are *very* unfriendly, we are rude, we dont like other people, we prefer being alone!! we are aware we arent the best person, and its actually a main reason we do not befriend others (and yes, for those wondering, we are actually trying to get better, but that doesnt mean we want to interact with others). if you feel like interacting with us anyways, you've been warned ig idk its ur funeral
+
 [simple lesboys explaination](https://lesboyguide.carrd.co) + [simple enby lesbians explaination](https://enbysbians.carrd.co)
 
 **important info;**
@@ -17,7 +19,7 @@ honduran-american ~//~  *bodily a minor, alot of headmates are minors, please do
 we, as a collective, do not trust others. this is because of past and mental issues, and it has caused our brain to think "people = bad", because of this, we are almost always on a _dniuid_ (do not interact unless we do), **this includes _any_ form of direct interaction**, such as whispers (yes, even if youre just crowning us), sitting near us, or anything similar. 
 
 if you want to interact with us, whispering and asking is your best bet! it's not a guarrentee we'll be in the mood to interact, but if you randomly come up to us, it is a hard NO.
-**// note; please dont try to push friendships onto us.. thats like, a guarentee to make us not like you.. we like being alone, and the last thing we need is someone like that forcing a friendship..**
+**// note; please dont try to push friendships onto us.. thats like, a guarantee to make us not like you.. we like being alone, and the last thing we need is someone like that forcing a friendship..**
 
 please read our strawpage (which includes a dni) before interacting. im serious, we are very wary about who we talk to, and if you are on our dni (or vise versa), we will *not* interact with you, no exceptions! ~(i also dont wanna hear you say "oh idc if you're on my dni", because **WE** care also. why have a dni if ur not gonna follow it?)~ :sob:
 
